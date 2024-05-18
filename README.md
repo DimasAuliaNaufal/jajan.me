@@ -1,0 +1,2 @@
+# jajan.me
+ donate someone
